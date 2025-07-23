@@ -1,3 +1,3 @@
 ---
-title: Welcome to my blog!
----
+KMS eSports -- Kulia I Ka Nuʻu
+--
